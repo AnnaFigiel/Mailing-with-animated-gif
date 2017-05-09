@@ -2,6 +2,6 @@
 
 **My mailing**
 
-Link: https://annafigiel.github.io/Mailing-with-animated-gif/
+Link: https://annafigiel.github.io/Mailing-with-animated-gifs/
 
 
